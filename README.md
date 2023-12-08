@@ -1,4 +1,4 @@
-![alt text](https://i.ibb.co/ryrJQxR/cover.jpg)
+![alt text](https://i.ibb.co/MMYpCX9/cove2r-01.jpg)
 
 # 📈 Current Streak Stats
 
